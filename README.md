@@ -13,13 +13,13 @@
 </p>
 
 <p align="center">
-　ׅ𝗲ntj　so/sx　351　　╱　　ׅhe　　𓐩
+　𝗲ntj　so/sx　351　　╱　　ׅhe　　𓐩
 
 <p align="center">
 ˳ᴗ ᴗ)　　𝒑t-br & 𝒆ng　　ㅤㅤꞌꞋ
 
 <p align="center">
-†̥̈˚̣̣̣ ︶◟　ㅤㅤw2iㅤৎ　𝘀afe 𝘀erver　ㅤ◞◟ ͜༒ྀ　　 𝄈
+†̥̈˚̣̣̣ ︶◟　ㅤw2iㅤৎ　𝘀afe 𝘀erver　ㅤ◞◟ ͜༒ྀ　
 <p align="center">
   akechiㅤ✚ㅤvincent wordsworthㅤ𝗶𝗱
 </p>
