@@ -23,6 +23,7 @@
 <p align="center">
   akechiㅤ✚ㅤvincent wordsworthㅤ𝗶𝗱
 </p>
+<a href="https://rentry.co/fatalcrow">rentry</a>  
 
 <div align="center">
 
