@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-　<a href="https://rentry.co/fatalcrow">rentry</a>　　╱　　ׅ<a href="https://vesselsyndrome.atabook.org/">ata</a>　　𓐩
+　<a href="https://rentry.co/angelciel">rentry</a>　　╱　　ׅ<a href="https://vesselsyndrome.atabook.org/">ata</a>　　𓐩
 <p align="center">
 
 <div align="center">
